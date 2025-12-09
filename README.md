@@ -1,1 +1,1 @@
-radiostatic shippers are the most insufferable creature ever to exist. what do you mean you have darkshippers dni in your dni list when your ship is clearly a darkship lol. not targeted to anyone, its just ive seen alot of people who has it. but feel free to feel targeted
+hi
